@@ -157,7 +157,7 @@ If you have questions or concerns about this Privacy Policy or our data practice
 
 **Developer:** Madiyar Elmuratov
 
-**Location:** Almaty, Kazakhstan
+**Location:** Shymkent, Kazakhstan
 
 ---
 
