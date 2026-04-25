@@ -200,7 +200,7 @@ For questions about these Terms, contact us at:
 
 **Developer:** Madiyar Elmuratov
 
-**Location:** Almaty, Kazakhstan
+**Location:** Shymkent, Kazakhstan
 
 ---
 
